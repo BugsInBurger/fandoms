@@ -18,12 +18,6 @@ bojack horseman <img src="https://media1.tenor.com/m/inCerOJ2SwEAAAAC/bojack-hor
 
 adventure time
 
-forsaken <img src="https://media.tenor.com/BhASNKLkQlYAAAAi/two-time-two-time-plush.gif" width="25"/>
-
-TADC <img src="https://media.tenor.com/knwgsTZq-cIAAAAi/the-amazing-digital-circus-pomni.gif" width="25"/>
-
-Dandy's world <img src="https://media.tenor.com/F8TeGbe38b8AAAAi/scraps-scraps-dw.gif" width="25"/>
-
 <div id="header" align="center">
 <img src="https://media.tenor.com/WLSEASGDl1AAAAAi/pride-77.gif" width="800"/>
 
