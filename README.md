@@ -8,6 +8,8 @@
 
 Rick and Morty
 
+Smiling friends
+
 cold front <img src="https://media1.tenor.com/m/g5p-S5vJ9nMAAAAC/augwin-studio-investigrave.gif" width="25"/>
 
 gasa4 <img src="https://media.tenor.com/CBrRqzgMwu0AAAAi/gasa4-cashier.gif" width="23"/>
